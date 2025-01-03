@@ -8,7 +8,7 @@
 - 📫 How to reach me **DUID : 1223737422399934618**
 
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me</h3>
 <p align="left">
 </p>
 
